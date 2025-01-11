@@ -2,8 +2,7 @@
 <h3 align="center">ML|| DL || Computer vision || Data analysis</h3>
 
 - 📫 How to reach me **prachitib27@gmail.com**
-
-- ⚡ Fun fact **I think I am passionate enough to be fit for almost any rule because of my hunger for learning new things.**
+ 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
