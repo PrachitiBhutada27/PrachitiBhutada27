@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **prachitib27@gmail.com**
 
-- ⚡ Fun fact **I think I am passionate enough to be fir for almost any rule because of my hunger for learning new things.**
+- ⚡ Fun fact **I think I am passionate enough to be fit for almost any rule because of my hunger for learning new things.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
